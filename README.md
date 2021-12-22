@@ -1,4 +1,8 @@
 ### Hi there 👋
+### 💼 I am getting my Work Experience from SSW
+### 🔭I am Enthusiastic about technologies
+### 📫You can find me on ssw.com.au/people/ozair-ashfaque)
+
 
 <!--
 **ozairashfaqueSSW/ozairashfaqueSSW** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
