@@ -1,5 +1,5 @@
 ### Hi there 👋
-### 💼 I am getting my Work Experience from SSW
+### 💼 I am working at SSW
 ### 🔭I am Enthusiastic about technologies
 ### 📫You can find me on ssw.com.au/people/ozair-ashfaque
 
