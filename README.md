@@ -1,4 +1,4 @@
-![image](https://github.com/ozairashfaqueSSW/ozairashfaqueSSW/assets/96504411/3306b557-801e-4300-bff8-798d3e1581d0)### Hi there 👋
+### Hi there 👋
 ### 💼 I am working at SSW
 ### 🔭I am Enthusiastic about technologies
 ### 📫You can find me on [ssw.com.au/people/ozair-ashfaque](https://www.ssw.com.au/people/ozair-ashfaque)
